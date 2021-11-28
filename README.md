@@ -1,4 +1,4 @@
-### good good study, day day up!👊😃🤜
+good good study, day day up ! 👊😃🤜
 
 <!--
 **StarlightUnion/StarlightUnion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
